@@ -1,1 +1,1 @@
-# bluyadstvo
+# blyadstvo
